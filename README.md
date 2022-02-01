@@ -1,0 +1,5 @@
+- 👋 Hi, I’m KarHub
+- 👀 I’m interested in Roblox Exploiting
+- 🌱 I’m currently learning Lua
+- 💞️ I’m looking to collaborate on Nothing
+- 📫 How to reach me U Cant
